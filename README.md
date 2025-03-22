@@ -1,1 +1,1 @@
-# Oswaldo-s-DDDG-Ultra-Extra-Content-Packs
+# Oswaldo-DDDG-Ultra-Extra-Content-Packs
